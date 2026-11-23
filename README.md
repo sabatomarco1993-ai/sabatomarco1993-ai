@@ -1,4 +1,3 @@
-# -sabatomarco1993-ai
 Hi, I’m Marco Sabato 👋
 
 Information Technology Student | Aspiring IT & Cloud Professional
